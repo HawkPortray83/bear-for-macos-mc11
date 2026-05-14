@@ -1,4 +1,4 @@
-#  
+#  Bear for macOS top Macro: real-time editing & voice notes is the best Bear for macOS macro, featuring real-time editing and voice notes. Safe, efficient, and optimized for macOS
 
 
 
